@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-## I'm Rahul Dhanola.
+## I'm Abdumalikov Shokhrukh.
 
 ### 💻 &nbsp;About Me 
 
