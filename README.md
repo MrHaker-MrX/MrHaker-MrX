@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-## I'm Abdumalikov Shokhrukh.
+## I'm Abdumalikov Shoxrux.
 
 ### 💻 &nbsp;About Me 
 
